@@ -8,7 +8,7 @@ On a bright afternoon on a mediterranean coast landed a bottle with a message in
 ''We need help with mycelium floating structure stop Brazil has no acces to western academic elite knowledge stop everyhting looks pattented stop''
 
 
-Gypsylab8 sent the message from Sao Paulo, we wrote a little story back in 2018 about his lab ([also presenting Mossdef the invisible tardigrade](https://medium.com/@BHsafari/tardigrade-invazion-inter-plannetary-invazion-and-non-human-studies-gambiologistsession-9616708d223f))
+Gypsylab8 sent the message from Sao Paulo, we wrote a little story back in 2018 about his lab ([also presenting Mossdef the invisible tardigrade](https://elpaquetedigitanne.substack.com/p/tardigrade-invazion-inter-plannetary-invazion-and-non-human-studies-gambiologistsession-9616708d223f)
 
 Gypsylab8 is a ''gambiarra'' lab with a decolonial cosmotechnic Gambiology is the science of repairing what's broken by using technics that emerges from precariousness lifestyle. 
 
