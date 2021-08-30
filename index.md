@@ -1,11 +1,11 @@
 ## Gypsylab8 and Mycelium 
 
-### Brazilian nomadic laboratory for interspecific relationship in the Technoscene.
+### Brazilian nomadic laboratory for interspecific relationship in the bio-technosphere
 
 On a bright afternoon on a mediterranean coast landed a bottle with a message inside.
 
 
-''We need help with mycelium floating structure stop Brazil has no acces to western academic elite knowledge stop everyhting looks pattented stop''
+''We need help with mycelium floating structure stop Brazil has no acces to western academic elite stop everything is pattented stop''
 
 
 Gypsylab8 sent the message from Sao Paulo, we wrote a little story back in 2018 about his lab ([also presenting Mossdef the invisible tardigrade](https://elpaquetedigitanne.substack.com/p/tardigrade-invazion-inter-plannetary-invazion-and-non-human-studies-gambiologistsession-9616708d223f)
@@ -25,7 +25,7 @@ Gypsylab8 currently works on a [floating turttle that collects datas](https://yo
 
 Now his main focus is to replace the floating plastic parts of the tortuga with mycelium structures coated with biocomposit mixture (coagulated fibres) [we write about biomaterial since 2016](https://medium.com/@BHsafari/biodesign-and-biomaterials-2e676c92a604).
 
-Soon gypsylab will be on the road for workshops
+Soon gypsylab will be on the road for workshops to share his gambiologist knowledge
 
 ![Screen Shot 2021-08-12 at 12 45 39 PM](https://user-images.githubusercontent.com/86488172/129184465-d3a3660f-2b80-4a39-aff4-689da86ee846.png)
 
